@@ -72,7 +72,7 @@ VRSEC University, Vijayawada
 
 ## 🌐 Live Portfolio
 
-Coming Soon...
+Portfolio updated
 
 ---
 
